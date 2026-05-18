@@ -1,0 +1,1 @@
+# joylashish-va-static-qiymat
